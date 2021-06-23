@@ -1,1 +1,1 @@
-- [新規書き下ろし作品限定】第一回厨二病小説大賞！！presented by藤原埼玉](https://github.com/shijimic/kansoutoka/tree/master/chuni1)
+- [新規書き下ろし作品限定】第一回厨二病小説大賞！！presented by藤原埼玉](https://github.com/shijimic/kanosoutoka/tree/master/chuni1)
